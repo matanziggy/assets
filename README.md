@@ -1,1 +1,2 @@
-# assets
+# Program Assets i Use 
+## NOTE: I DONT OWN MOST OF THE ASSETS HERE SO BEWARE OF COPYRIGHTS ©
